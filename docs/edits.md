@@ -1,0 +1,1 @@
+Looking at your resume it seems you have quiet alot of experience. However, I would add a "skills" section that lists your certifiactions and current programming langauges known, in addditon to any other skills you think would be relevant to an employer.
